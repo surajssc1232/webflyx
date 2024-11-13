@@ -1,5 +1,0 @@
-* "May the Force be with you"
-* "I find your lack of faith disturbing"
-* "I am your father"
-* "Ddo or do not. There us not try"
-* "I've got a bad feeling about this"
